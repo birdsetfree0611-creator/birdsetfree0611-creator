@@ -178,6 +178,6 @@ I'm particularly interested in opportunities involving:
 
 📍 Taiwan  
 💼 GitHub: [birdsetfree0611-creator](https://github.com/birdsetfree0611-creator)
-Phone : 0966330611
+📱 Phone: +886 966-330-611
 
 Feel free to explore my repositories and projects.
